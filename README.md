@@ -1,1 +1,1 @@
-Personal website showcasing videos and projects over the years
+Personal website showcasing videos and projects over the years.
